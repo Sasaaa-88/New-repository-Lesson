@@ -2,4 +2,4 @@
 
 Egypt is the hell!!!
 
-Fuck it.
+Fuck it all night long.
